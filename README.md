@@ -1,3 +1,3 @@
-#Rs Kanujoso Djatiwibowo, Jl. MT Haryono No.656
+# Alamat 
 
-obat paramex
+Rs Kajunoso Djatiwibowo, Jl. Mt Haryono No. 656
